@@ -1,1 +1,1 @@
-# Journal-of-advanced-plant-science
+# Journal of advanced plant science
